@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TiagoP-45334
-- 👀 I’m interested in telecomunivation
+- 👀 I’m interested in telecomunication
 - 🌱 I’m currently learning in master course MEET in ISEL
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ttiagoap@sapo.pt
